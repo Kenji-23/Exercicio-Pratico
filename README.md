@@ -1,1 +1,2 @@
-# Exercicio-Pratico Lema da equipa: União faz a força!
+# Exercicio-Pratico
+Lema da equipa: Trabalhar juntos para aprender.
