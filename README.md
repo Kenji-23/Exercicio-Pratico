@@ -1,1 +1,1 @@
-# Exercicio-Pratico
+# Exercicio-Pratico Lema da equipa: União faz a força!
